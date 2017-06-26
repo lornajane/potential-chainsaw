@@ -6,5 +6,3 @@ Durian is far from a standard fruit in North America, but in Asia, it's far more
 
 :heart: :heart: :heart: :heart: :heart: :heart: :heart: :heart: :heart: :heart:
 :heart: :heart: :heart: :heart: :heart: :heart: :heart: :heart: :heart: :heart:  
-:heart: :heart: :heart: :heart: :heart: :heart: :heart: :heart: :heart: :heart:
-:heart: :heart: :heart: :heart: :heart: :heart: :heart: :heart: :heart: :heart:  
