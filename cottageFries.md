@@ -1,6 +1,6 @@
 [CREDIT](http://foodwishes.blogspot.com/2012/04/cottage-fries-americas-forgotten-fry.html)
 
-![Image of cottage fries](http://foodwishes.blogspot.com/2012/04/cottage-fries-americas-forgotten-fry.html)
+![Image of cottage fries](http://3.bp.blogspot.com/-9S1gDdrLc6U/T4MTmhnmusI/AAAAAAAAK3w/xjg5zNyvC0U/IMG_3956.JPG)
 
 Ingredients:
 russet potatoes, sliced into 3/8-inch thick rounds (about 4-oz per portion)
