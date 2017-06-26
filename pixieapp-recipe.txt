@@ -1,0 +1,7 @@
+To make one PixieApp, you'll need:
+
+1. Apache Spark
+2. Apache Jupyter
+3. David Taieb (IBM DE)
+
+Combine ingredients in an office environment for 30 minutes. Enjoy your new PixieApp!
