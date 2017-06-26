@@ -1,5 +1,7 @@
 [CREDIT](http://foodwishes.blogspot.com/2012/04/cottage-fries-americas-forgotten-fry.html)
 
+![Image of cottage fries](http://foodwishes.blogspot.com/2012/04/cottage-fries-americas-forgotten-fry.html)
+
 Ingredients:
 russet potatoes, sliced into 3/8-inch thick rounds (about 4-oz per portion)
 enough olive oil to coat
@@ -16,3 +18,5 @@ I used Yukon gold potatoes, which as you’ll see, worked fine, but I do prefer 
 I also used a silicon mat to cook mine on, but you’ll get even crispier edges if you use foil, or put the sliced potato directly on a non-stick baking sheet. Of course, the seasoning options are only limited by your imagination and self-control.
 
 I love Herbes de Provence in this, but literally any fresh or dried herb will work here. Keep in mind, these chips are great just seasoned with olive oil, salt, and pepper, so you’re cooking from a position of power – don’t try and do too much. I hope you give these great change-of-pace “fries” a try soon. Enjoy!
+
+![Image of cottage fries](http://2.bp.blogspot.com/-EtZhHAAYAgA/T4MTnNp3WEI/AAAAAAAAK34/cRwcyI1LK1U/IMG_3966.JPG)
